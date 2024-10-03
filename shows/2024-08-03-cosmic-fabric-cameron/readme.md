@@ -6,6 +6,8 @@ The Cosmic Fabric Model | Sitdown with Cameron Ward
 
 August 3, 2024 (interview date)
 
+test
+
 ## Chapters / Description
 
 What is SPACE? What if it's actually a 'something'?! Come join me in this chat with a really smart guy, Cameron Ward, who's pursuing a dissertation on this fascinating topic. Einstein, general relativity, spacetime, ... really simple stuff eh?! I want to thank Cameron for doing this first sitdown ("interview") on this channel, hopefully the first of many with some fellow creationists.
