@@ -9,6 +9,16 @@ October 26, 2024 (reading date, upload Oct 31)
 
 ## Chapters / Description
 
+00:00 - Opening
+00:21 - Lord's Prayer (Aramaic)
+01:14 - Intro
+02:01 - Genesis 1
+08:56 - Genesis 2
+13:44 - Genesis 3
+20:23 - Genesis 4
+26:18 - Genesis 5
+32:22 - Genesis 6:1-8
+
 This last Shabbat (October 26, 2024) was the first reading of the Torah cycle which just began (following as it does the end of Tabernacles). This portion contains Genesis 1 - 6:8. Join me as I read the entire parashah in one go, straight through. If I were braver I would have read from the unvocalized text, which actually would not be too difficult given I am quite familiar with these passages, but given I am starting some things out with such readings, I went the easier route and am reading from the vocalized.
 
 At the same time I have gone to great lengths to capture a beautiful physical text from which I am reading. At the same time I also put the Hebrew and English translation so you can follow along. (It's been a long journey learning how to do all of this in Premier Pro, but even bigger is I've had a ton to learn to do proper audio processing in Audition)
